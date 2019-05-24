@@ -1,0 +1,2 @@
+# foolishgao.github.io
+tips
